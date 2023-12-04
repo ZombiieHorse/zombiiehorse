@@ -11,4 +11,4 @@ Zombiie / Eden
 
   ☆
   
-- I like a lot of things but personally a VERY big fan of minecraft, scp, pokemon, scott pilgrim, marvel, rpg maker horror games and more I'll add later probably
+- I like a lot of things but personally a VERY big fan of minecraft, scp, pokemon, scott pilgrim, marvel, rpg maker horror games, fnaf, sonic, OFF, musicals, Wolf 359, rocks, danganronpa, Dirk Gently, BCB, cryptids, marble hornets, creepypasta, golden sun dark dawn, madness combat, doctor w ho, criminal minds, houseki no kuni, ace attorney, night in the woods, madoka magica, the magnus archives, LOZ, overwatch, silent hill, YTTD, venturiantale, MLP, good omens and more I'll add later probably
